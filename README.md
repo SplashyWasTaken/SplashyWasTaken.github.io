@@ -1,4 +1,4 @@
-# If you didn't mean to click on my carrd, ok lol
+# If you didn't mean to click on [my carrd](https://splashyy.carrd.co/) ok lol
 ## here's catto for now
 
 
